@@ -1,3 +1,3 @@
 ### You know nothing, Jon Snow :wolf:
 
-![](https://gfycat.com/dearoldfashioneddavidstiger)
+![](https://gfycat.com/ifr/DearOldfashionedDavidstiger)
